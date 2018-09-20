@@ -1,0 +1,1 @@
+take DNG picture
